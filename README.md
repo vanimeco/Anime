@@ -12,6 +12,4 @@ Pour regarder des animes gratuitement, vous pouvez utiliser les sites suivants :
 
 Ces plateformes offrent un large choix d'animes que vous pouvez regarder gratuitement, souvent avec des options de sous-titrage dans plusieurs langues.
 
-## Suivez-Nous
 
-Pour plus de mises à jour et d'informations, suivez-nous sur [Twitter](https://twitter.com/yourprofile) ou visitez notre site web [Example.com](https://example.com).
